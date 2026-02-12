@@ -1,1 +1,1 @@
-Team lead: Chimwemwe Sinyinza
+Team Leads: Chali Chibwana and Chimwemwe Sinyinza
